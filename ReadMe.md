@@ -1,0 +1,1 @@
+An arabic story about love between a orphan boy and it's teacher.
